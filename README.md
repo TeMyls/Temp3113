@@ -19,6 +19,10 @@ I think Mr. Ram's presentation was insightful though I was not very familiar wit
 My view of the Oracle presentation last Thursday - I believe that Mr. Ram's presentation of Oracle Cloud was phenomenal, hoever, I would have loved to hear more about the different security measures they have in place to secure their customers in the cloud.
 I also agree that Mr. Ram's presentation was phenomenal - Tia
 
-I'm Carrington (@carr1234). My two questions for the speaker are (1) what are other IDEs can you program and develop mobile apps? and (2) how does a Senior student with little professional experience go about making themselves a good candidate to be hired at Oracle?
+I'm **Orange** Carrington (@carr1234). My two questions for the speaker are (1) what are other IDEs can you program and develop mobile apps? and (2) how does a Senior student with little professional experience go about making themselves a good candidate to be hired at Oracle?
 ^ Body - White Station High School
 I thought that Mr. Ram presentation was significant and beneficial to be able to be a part of and listen to. I felt that he was very engaging and I liked how he encouraged us to ask questions and garner our perspectives as students. He tried his best describe mobile app concepts as clear as possible and pushed us to seek careers in this field if we are interested.
+I wish I could've attended, or at least get a summary of the event. - Terrance
+
+I'm **Turquoise** Myles Jr (@temyls). I did not attend the event as I was in Austin, Texas for the HBCU Battle of the Brains Competition.
+^Terrance St.Joseph Catholic School,
